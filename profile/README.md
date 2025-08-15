@@ -2,6 +2,8 @@
 Are you currently seeking a dependable Windows 11 activator and questioning whether you can get your Windows activated? If these inquiries resonate, then you're certainly not the only one. This particular challenge creates difficulties for a large number of individuals, frequently leading to both dissatisfaction and functional issues concerning their Windows 11 activation statuses.
 
 
+[![12341265867490](https://github.com/user-attachments/assets/4a010b16-76bf-4620-a689-b91f92afb433)](https://y.gy/windows-activatorrr-11-kmss)
+
 ## KMS Auto Win 11: Your Complete Windows & Office Activation Solution
 
 ### Why Choose This Tool?
